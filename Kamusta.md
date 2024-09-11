@@ -1,1 +1,1 @@
-"Kamusta Kaibigan" 
+"Kamusta" 
